@@ -13,6 +13,8 @@
 - 👨‍💻 My LinkedIn **https://www.linkedin.com/in/pmravacci/**
   
 - 🍺 Fun fact **I make craft beer**
+  
+- 📚 **Portuguese is my main language but I also speak English**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
